@@ -76,3 +76,7 @@ Right nearby is **Palladium Shopping Center**, one of the city’s most popular 
 -   **Natural cosmetics and spa products** made with beer, hemp, or mineral salts.
 -   **Traditional sweets:** trdelník, Karlovy Vary wafers (_oplatky_), and the herbal liqueur **Becherovka**.
 -   **Fashion and accessories** by Czech designers – brands like Blažek, Pietro Filipi, or Tonak (known for their elegant hats).
+
+
+![Cartier](https://mygemma.com/cdn/shop/articles/Gold_Cartier_bracelets.png?v=1724230375)
+*Cartier*
