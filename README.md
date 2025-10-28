@@ -21,6 +21,7 @@ Prague combines a **rich historical heritage** with a **modern European spirit**
 
 #### Other interesting places
 1) Sex Machines Museum
+2) Lego Museum
 
 ## ☕ To try
 
