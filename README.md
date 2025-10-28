@@ -19,6 +19,9 @@ Prague combines a **rich historical heritage** with a **modern European spirit**
 **Petřín Tower** — a smaller version of the Eiffel Tower, offering stunning panoramic views of the entire city.    
 ![enter image description here](https://dynamic-media-cdn.tripadvisor.com/media/photo-o/04/ca/32/64/caption.jpg?w=1000&h=-1&s=1)
 
+#### Other interesting places
+1) Sex Machines Museum
+
 ## ☕ To try
 
 Prague is famous for its **bohemian atmosphere**, cozy cafés, pubs, and street musicians. The city was beloved by Kafka, Mozart, Dvořák, and many other creative figures. It is also renowned for its **traditional Czech beer**, cuisine (goulash, svíčková, trdelník). While exploring Prague, some visitors note the city’s **liberal attitude toward cannabis**. Small amounts for personal use have been **decriminalized**, though **recreational use is not fully legal**. You may find cafés or shops selling **CBD products** legally, but it’s important to understand the local regulations and avoid public consumption of marijuana.
