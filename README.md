@@ -24,15 +24,15 @@ Prague combines a **rich historical heritage** with a **modern European spirit**
 
 ## ☕ To try
 
-Prague is famous for its **bohemian atmosphere**, cozy cafés, pubs, and street musicians. The city was beloved by Kafka, Mozart, Dvořák, and many other creative figures. It is also renowned for its **traditional Czech beer**, cuisine (goulash, svíčková, trdelník). While exploring Prague, some visitors note the city’s **liberal attitude toward cannabis**. Small amounts for personal use have been **decriminalized**, though **recreational use is not fully legal**. You may find cafés or shops selling **CBD products** legally, but it’s important to understand the local regulations and avoid public consumption of marijuana.
+Prague is famous for its **bohemian atmosphere**, cozy cafés, pubs, and street musicians. The city was beloved by Kafka, Mozart, Dvořák, and many other creative figures. It is also renowned for its **traditional Czech beer**, cuisine (goulash, svíčková, trdelník). While exploring Prague, some visitors note the city’s **liberal attitude toward cannabis**. Small amounts for personal use have been **decriminalized**, though **recreational use is not fully legal**. You may find cafés or shops selling products legally, but it’s important to understand the local regulations and avoid public consumption of marijuana.
 #### How to Try 🌿 Cannabis in Prague Safely
 
-1.  **Visit a legal CBD shop**
-- These are easy to find in Prague, labeled as _CBD stores_ or _Hemp shops_.
-- The products contain very little THC and don’t produce a strong psychoactive high, but can feel mildly relaxing. (such as gummy bears or brownies). Ask at the shop.
+1.  **Visit a legal shop**
+- These are easy to find in Prague, labeled as _CBD stores_ or _Hemp shops_. 
 2.  **Use it privately**
-- Even CBD products are better enjoyed **indoors**, at your accommodation.
-- Smoking or vaping outside — even if legal CBD — may attract police attention.
+- Products are better enjoyed **indoors**, at your accommodation.
+- Smoking or vaping outside may attract police attention.
+- Gummy bears and brownies can be an alternative to smoking
 3.  **Never drive after consumption**
 - The Czech Republic has a **zero-tolerance policy** for driving under the influence of drugs.
 - Even a trace of THC in your blood can lead to heavy fines, loss of license, or criminal charges.
