@@ -20,8 +20,8 @@ Prague combines a **rich historical heritage** with a **modern European spirit**
 ![enter image description here](https://dynamic-media-cdn.tripadvisor.com/media/photo-o/04/ca/32/64/caption.jpg?w=1000&h=-1&s=1)
 
 #### Other interesting places
-1) Sex Machines Museum
-2) Lego Museum
+1. Sex Machines Museum
+2. Lego Museum
 
 ## ☕ To try
 
