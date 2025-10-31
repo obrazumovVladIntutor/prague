@@ -3,6 +3,9 @@ Prague is the capital and largest city of the Czech Republic, located on the Vlt
 
 Prague combines a **rich historical heritage** with a **modern European spirit**. Here you can see traces of many eras — from the Middle Ages to Baroque and Art Nouveau. The city preserved its unique character even after the world wars, making it one of the best-preserved historical centers in Europe.
 
+### Warning⚠️⚠️⚠️
+Be careful with public transport — buses and trams move quite fast and might keep going even when cars are stopped, and even in places where cars don’t usually drive. So if you see a traffic light, cross the street only when it’s green, and be especially cautious in the city center where trams may run but cars don’t — always look around before crossing if there is no traffic light
+
 ## 🏰 Main Attractions (sorted by popularity)
 
 **Old Town Square (Staroměstské náměstí)** — the heart of the old city, with the Astronomical Clock, the Týn Church, and Gothic facades.    
