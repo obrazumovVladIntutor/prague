@@ -27,7 +27,7 @@ Be careful with public transport — buses and trams move quite fast and might k
 #### Other interesting places
 1. Sex Machines Museum
 2. Lego Museum
-3. Dinosaur Museum (https://pop.cz/dinosauria/en/)
+3. [Dinosaur Museum](https://pop.cz/dinosauria/en/)
 
 ## ☕ To try
 
@@ -45,7 +45,7 @@ Prague is famous for its **bohemian atmosphere**, cozy cafés, pubs, and street 
 - Even a trace of THC in your blood can lead to heavy fines, loss of license, or criminal charges.
 
 #### Recipies and ideas what to order:
-https://www.cooklikeczechs.com/czech-foods/
+[https://www.cooklikeczechs.com/czech-foods/](https://www.cooklikeczechs.com/czech-foods/)
 
 ![Trdelnik Prague: taste the best one! | PragueHere.com](https://www.praguehere.com/photo/312/crd2myfmaz6cjjkmkqcq.jpg)  
 *trdelník (trdlo)*
