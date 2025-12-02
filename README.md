@@ -3,6 +3,8 @@ Prague is the capital and largest city of the Czech Republic, located on the Vlt
 
 Prague combines a **rich historical heritage** with a **modern European spirit**. Here you can see traces of many eras — from the Middle Ages to Baroque and Art Nouveau. The city preserved its unique character even after the world wars, making it one of the best-preserved historical centers in Europe.
 
+### Taxi: Bold, Uber
+
 ### Warning⚠️⚠️⚠️
 Be careful with public transport — buses and trams move quite fast and might keep going even when cars are stopped, and even in places where cars don’t usually drive. So if you see a traffic light, cross the street only when it’s green, and be especially cautious in the city center where trams may run but cars don’t — always look around before crossing if there is no traffic light
 
@@ -25,6 +27,7 @@ Be careful with public transport — buses and trams move quite fast and might k
 #### Other interesting places
 1. Sex Machines Museum
 2. Lego Museum
+3. Dinosaur Museum (https://pop.cz/dinosauria/en/)
 
 ## ☕ To try
 
@@ -41,8 +44,15 @@ Prague is famous for its **bohemian atmosphere**, cozy cafés, pubs, and street 
 - The Czech Republic has a **zero-tolerance policy** for driving under the influence of drugs.
 - Even a trace of THC in your blood can lead to heavy fines, loss of license, or criminal charges.
 
+#### Recipies and ideas what to order:
+https://www.cooklikeczechs.com/czech-foods/
+
 ![Trdelnik Prague: taste the best one! | PragueHere.com](https://www.praguehere.com/photo/312/crd2myfmaz6cjjkmkqcq.jpg)  
-*trdelník (trdlo)*  
+*trdelník (trdlo)*
+![](https://www.cooklikeczechs.com/wp-content/uploads/2022/08/czech-beef-goulash.jpg)
+*Czech goulash*
+![](https://images.squarespace-cdn.com/content/v1/6665d6f38c57012122e224ba/1717950202646-VO23MIW0YOBDATOR7W19/WhatsApp+Image+2024-04-24+at+5.54.17+AM.jpg)
+*Roast Sirloin in Sour Cream Sauce (Hovězí svíčková na smetaně)*
 ![enter image description here](https://prague.org/wp-content/uploads/2023/10/Czech-Beer-1-1024x683.jpg)  
 *bottled beer*
 
