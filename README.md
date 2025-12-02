@@ -26,7 +26,7 @@ Be careful with public transport — buses and trams move quite fast and might k
 
 #### Other interesting places
 1. Sex Machines Museum
-2. Lego Museum
+2. [Lego Museum](https://museumofbricks.cz/lego-museum/prague)
 3. [Dinosaur Museum](https://pop.cz/dinosauria/en/)
 
 ## ☕ To try
